@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @FnaFGamer14 aka Aidan I am 16 
+- 👋 Hi, I’m @FnaFGamer14 aka Aidan I am 16 years old
 - 👀 I’m interested in Five Nights at Freddy's,Dark Deception,Minecraft,Left 4 Dead 2,and The Last of Us.
 - 🌱 I’m currently learning how to be good at game developing.
 - 💞️ I’m looking to collaborate on my games I am making.
